@@ -31,3 +31,21 @@ Enjoy “The Tipped Inkwell” Digital Exhibit!
  
 
 Total Word Count: 723 
+
+
+
+References 
+
+Macdonald, Mary. A Very Laudable Effort: Standards of Literary Excellence in Early Nineteenth Century Canada.  Canadian Literature. 1991. 
+
+Golden, Catherine J. Posting It: The Victorian Revolution in Letter Writing. University Press of Florida, 2009.  
+
+ 
+
+Archived Images and Objects 
+
+Real Pen Work, Self-Instructor in Penmanship Z 43 R43 1881. http://hdl.handle.net/10464/14093 
+
+Alexander Hamilton/Early Canada Postal Collection 1775-1983, n.d. RG 699. http://hdl.handle.net/10464/14770 
+
+Alexander Hamilton/Early Canada Postal Collection 1775-1983, n.d. RG 699. http://hdl.handle.net/10464/15198 
